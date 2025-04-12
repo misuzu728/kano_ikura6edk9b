@@ -1,1 +1,0 @@
-# kano_ikura6edk9b
